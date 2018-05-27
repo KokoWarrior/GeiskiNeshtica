@@ -1,2 +1,2 @@
 # GeiskoNeshto
-bla bla
+umri v kofa be gey
