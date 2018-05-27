@@ -1,2 +1,3 @@
 # GeiskiNeshtica
-umri v kofa be gey
+umri v kofa be marto
+
